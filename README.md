@@ -1,1 +1,1 @@
-sorry but Cyberterroroists are bad
+This page doesnt exist BLACK HATS!!
